@@ -1,1 +1,1 @@
-Hi, I’m Alexandr 👋:octocat:
+Hi, I’m Alexandr 👋
